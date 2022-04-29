@@ -1,9 +1,12 @@
-- 👋 Hi, I’m @b4xin
-- 👀 I’m interested in Python, Django, JS, HTML, CSS
-- 🌱 I’m currently learning Python
-- My IG : result_01
 
-<!---
-b4xin/b4xin is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+- My IG : result_01 ( Deleted One )
+- My New IG : x01.draw
+
+- B ro let me tell you i love everything,
+- A nd i am a loser who try learn everything, and tryn to INVASION THE WORLD
+- H aha, surprised, ohh your right nobody care about a loser,
+- A nd, in the end my name is, ohh just read the first letter & combine them
+
+Still not got it ? Ok 
+
+
